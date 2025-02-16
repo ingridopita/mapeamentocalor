@@ -1,0 +1,1 @@
+# mapeamentocalor
